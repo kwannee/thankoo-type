@@ -1,0 +1,1 @@
+# thankoo-type
